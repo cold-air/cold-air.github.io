@@ -1,8 +1,2 @@
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
+**Choke clean cold to cool my thoughts away**
+**Choke clean cold to cool my thoughts away from you**
